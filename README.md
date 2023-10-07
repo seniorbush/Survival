@@ -1,0 +1,3 @@
+# What is the game?
+Aliens have come to earth in search of something in the soil that aids, builds or drives their civilisation, mankind has already lost the earth and are pushed back into the early stages of human development and must rebuild from the settler stages the whole way through industrial tools/weapons to future tech, the addition of alien tech has an influence in every stage through modifications in both weaponry and structure developments.  Progression through either storyline or terrain, leads to advancements in character and base development.  The overarching them is some kind of medieval mash up of human tech to alien in an effort to fight back against the aliens and retake Earth.
+# Survival
